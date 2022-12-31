@@ -1,4 +1,4 @@
 # cv- aryan shrivastava
-
-Instagram- @code.aryan
+Name: Aryan Shrivastava
+| Instagram- @code.aryan
 
