@@ -1,3 +1,3 @@
 # cv- aryan shrivastava
-Instagram- @code.aryan
+Insta- @code.aryan
 
